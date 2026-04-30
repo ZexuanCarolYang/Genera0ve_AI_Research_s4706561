@@ -1,1 +1,1 @@
-# Genera0ve_AI_Research_s4706561
+# Generatve_AI_Research_s4706561
